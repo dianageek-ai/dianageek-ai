@@ -7,5 +7,5 @@ Fun fact:
 I'm not all that employable anymore.  
 - I ask too many questions
 - I'm too critical
-- If anyone is going to waste my time, it had better be me. No one else is allowed to do that. 
+- If anyone is going to waste my time, it had better be me
 
